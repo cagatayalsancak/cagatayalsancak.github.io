@@ -1,1 +1,1 @@
-Welcome!
+Elbet birgün hazır olacak :)
